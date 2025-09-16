@@ -2,8 +2,8 @@
 
 For immediate assistance with cancellations or rebookings, contact SAS customer support directly:
 
-*** U.S. Support Number: +1 866-829-1230**
-*** Australia Support Number: +61 1800-239-102**
+* **U.S. Support Number: +1 866-829-1230**
+* **Australia Support Number: +61 1800-239-102**
 
 When travel plans change, it’s important to understand the Scandinavian Airlines (SAS) cancellation policy so you can adjust your trip with confidence. Whether you need to request a refund, cancel, or rebook your flight, SAS provides flexible options depending on your ticket type.
 
